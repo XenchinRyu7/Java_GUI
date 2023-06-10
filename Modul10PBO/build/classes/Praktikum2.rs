@@ -1,2 +1,0 @@
-Praktikum2
-Latihan7b
